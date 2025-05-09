@@ -7,3 +7,4 @@ finsihing up the edit todya, on the 4th, jsut gotta work on finishing it up and 
 finsihed eveyrhting for the msot part, gonna rerender as theres glithces, add soem more stuff then create a thuimbnail today and post it soem time at night i think, afterwhich ill get back to coding on the 6th, maybe after some destiny thgouh since it is reset.
 about ot upload it onyto eveyrhtign, aftewds im gonna sleep get up then get back to coding, hopefully finsih up that nixie thign in a week or so, but i am going to edmonton so who knows
 dxawd
+done coutner, will be workign on this when im back from my vacation, until then, liekly will be bug fixing the coutner
