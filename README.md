@@ -8,3 +8,4 @@ finsihed eveyrhting for the msot part, gonna rerender as theres glithces, add so
 about ot upload it onyto eveyrhtign, aftewds im gonna sleep get up then get back to coding, hopefully finsih up that nixie thign in a week or so, but i am going to edmonton so who knows
 dxawd
 done coutner, will be workign on this when im back from my vacation, until then, liekly will be bug fixing the coutner
+n jkhb
