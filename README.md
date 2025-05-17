@@ -11,3 +11,4 @@ done coutner, will be workign on this when im back from my vacation, until then,
 n jkhb
 dwa wjdb
 dwa
+plannign on fixing up the uirl for ncoputner before starting this 
