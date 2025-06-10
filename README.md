@@ -6,3 +6,4 @@ dwakl
 huwda
 jij
 j
+w
