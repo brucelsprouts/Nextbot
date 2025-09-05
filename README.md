@@ -5,8 +5,7 @@ madw
 dwakldwadwa
 huwdacda
 jijdadawdawdwa hdwavddwa
-wdwadswadwadwadwawdadwaDWAdwadwau
-vduytCDWAwdaDWAdawdwa
+wdwadswadwadwadwawdadwaDWAdwadwauddwa
 I7JYESFqq232dwadwadwadaaxas
 wadwadwadwadwa
 SDFWawdwadwjdwa
